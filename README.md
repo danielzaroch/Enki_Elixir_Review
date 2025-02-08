@@ -49,7 +49,11 @@ Based on its formulation, **Enki Elixir is targeted at**:
 ✔️ **Biohackers & wellness seekers** – Those optimizing cognitive function.  
 ✔️ **Caffeine-sensitive individuals** – People avoiding stimulant-based nootropics.
 
-bbb
+<p align="center">
+  <a href="https://28330ablu3qacs14z9s0s839sf.hop.clickbank.net">
+    <img src="https://i.imgur.com/b5eLGig.png" width="640">
+  </a>
+</p>
 
 ## ****Enki Elixir Ingredients: What’s Inside?****
 
